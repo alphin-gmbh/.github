@@ -6,4 +6,4 @@
 
 👩‍💻 If you want more details on what alphin is doing, please check out our [webpage](https://www.alphin.com/)
 
-🧙 Don't forget, we are hiring https://www.alphin.com/career
+🧙 Don't forget, we are hiring https://www.alphin.com/en/career
